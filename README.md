@@ -2,4 +2,3 @@
 ---
 #### Visitors
 ![](https://count.getloli.com/get/@xLikeWATCHDOG?theme=rule34)
-[密码:1234](https://wwi.lanzoup.com/b0czcpxeh)
